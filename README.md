@@ -1,6 +1,6 @@
 # My Favorite Series of All Time
 ## Breaking Bad (2008)
-##Main Cast: ## Bryan Cranston, Aaron Paul, Anna Gunn, Dean Norris.
+Main Cast: Bryan Cranston, Aaron Paul, Anna Gunn, Dean Norris.
 
 ## Synopsis:
 Breaking Bad follows Walter White, a high‑school chemistry teacher diagnosed with stage‑three lung cancer, who partners with former student Jesse Pinkman to manufacture and sell methamphetamine in order to secure his family’s financial future
